@@ -17,5 +17,5 @@
 ---
 
 ## 📫 Connect With Me
-- LinkedIn: (linkedin.com/in/lasanthi-ayesha-00449a256)
+- LinkedIn: linkedin.com/in/lasanthi-ayesha-00449a256
 - Email: ayesha.ag128@gmail.com
